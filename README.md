@@ -15,6 +15,10 @@
 📫 How to reach me [here](https://www.linkedin.com/in/juyonglee55/)📫
 
 ⚡ Fun fact **I love baseball!**
+ <br>
+
+
+ 😄I hope you have a great day😄 
 
 
 <h3 align="left">Languages and Tools:</h3>
